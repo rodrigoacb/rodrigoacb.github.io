@@ -14,3 +14,5 @@ Here I'll try to keep a log of my
 4. Studies
 5. Interests
 6. Hobbies und so weiter   ;)
+
+See you soon!
